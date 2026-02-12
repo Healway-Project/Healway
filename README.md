@@ -1,0 +1,2 @@
+# Healway
+Healway is a wellness community that connects people with shared needs in mental health, meditation, and nutrition, offering expert-led coaching, consultations, and professionally guided healing experiences in nature.
